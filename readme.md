@@ -8,7 +8,7 @@ The workshop will be held virtually and is open to the public (link below). We i
 
 The workshops will run on **Tuesdays from 2-4pm Eastern Daylight Time (EDT)**, from May 25th to June 15th. 
 
-[Click here to join the workshop](https://umich.zoom.us/j/98760392804). We will use the same link for each meeting.
+We will use the same link for each meeting. Registration is only required one time to attend all meetings.
 
 ## May 25th (2-4pm EDT)
 ### Topic: Race and Racial Attitudes
