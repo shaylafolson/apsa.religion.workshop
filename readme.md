@@ -9,8 +9,8 @@ The workshop will be held virtually and is open to the public (link TBA). We inv
 The workshops will run on **Tuesdays from 2-4pm Eastern Daylight Time (EDT)**, from May 25th to June 15th. Check back here for workshop Zoom link.
 
 ## May 25th (2-4pm EDT)
-### Topic: American Race
-1. Chelsea N. Jones (University of California, Los Angeles) - "Black Americans Ideological Diversity: The Role of the Black Church"
+### Topic: Race and Racial Attitudes
+1. Mariska Jung (Vrije Universiteit Brussel) - "Islamophobia and Antisemitism Articulated via Animal Politics"
 2. Charles M. Turner (University of Utah) - "Out of the Shadows: New Strategies for Identifying Islamophobia"
 3. Noemi Hernandez Alexander (California Baptist University) - "The Politics of Latino-Evangelicals"
 4. Shayla F. Olson (University of Michigan) - "Abortion or Race? An Experimental Test of Evangelicals' Preferences"
@@ -26,8 +26,8 @@ The workshops will run on **Tuesdays from 2-4pm Eastern Daylight Time (EDT)**, f
 ### Topic: Religion, Beliefs, and Theory
 1. Derek Lief (University of Michigan) - "The Effect of Organizational Religiosity on Performance"
 2. Hilary Zedlitz (University of Michigan) - "Longing to Belong: Nones, Belonging, and Political Behavior"
-3. Mariska Jung (Vrije Universiteit Brussel) - "Islamophobia and Antisemitism Articulated via Animal Politics"
-4. Sarah Greenberg (Cornell University) - "The Many Moses’s of Hobbes’s Leviathan: Covenant, Sovereignty, and Authority"
+3. Sarah Greenberg (Cornell University) - "The Many Moses’s of Hobbes’s Leviathan: Covenant, Sovereignty, and Authority"
+4. Chelsea N. Jones (University of California, Los Angeles) - "Black Americans Ideological Diversity: The Role of the Black Church"
 
 ## June 15th (2-4pm EDT)
 ### Topic: Comparative Politics and International Relations
