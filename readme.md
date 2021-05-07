@@ -2,13 +2,13 @@
 
 The APSA Religion & Politics Early Career Workshop was organized by [Shayla Olson](https://shaylafolson.org/), [Amy Erica Smith](http://amyericasmith.org/), and Hilary Zedlitz. We designed this workshop as an opportunity for graduate students, post-docs, and non-tenure track faculty to get feedback on their work. The workshop will be held in the early summer to give participants time to implement feedback from the workshop in time for the fall conference cycle.
 
-The workshop will be held virtually and is open to the public (link below). We invite scholars at all stages to come listen and provide feedback to our presenters.
+The workshop will be held virtually and is open to the public ([register here](https://umich.zoom.us/meeting/register/tJwqcemrpzkiGtCCd5xZecFUqoUrJNUTYorN)). We invite scholars at all stages to come listen and provide feedback to our presenters.
 
 # Schedule and Meeting Link
 
 The workshops will run on **Tuesdays from 2-4pm Eastern Daylight Time (EDT)**, from May 25th to June 15th. 
 
-We will use the same link for each meeting. Registration is only required one time to attend all meetings.
+[Register to attend here](https://umich.zoom.us/meeting/register/tJwqcemrpzkiGtCCd5xZecFUqoUrJNUTYorN). The link is the same for each meeting, and registration is only required one time to attend all meetings.
 
 ## May 25th (2-4pm EDT)
 ### Topic: Race and Racial Attitudes
