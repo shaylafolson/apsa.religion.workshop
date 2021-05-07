@@ -4,9 +4,11 @@ The APSA Religion & Politics Early Career Workshop was organized by [Shayla Olso
 
 The workshop will be held virtually and is open to the public (link TBA). We invite scholars at all stages to come listen and provide feedback to our presenters.
 
-# Schedule
+# Schedule and Meeting Link
 
-The workshops will run on **Tuesdays from 2-4pm Eastern Daylight Time (EDT)**, from May 25th to June 15th. Check back here for workshop Zoom link.
+The workshops will run on **Tuesdays from 2-4pm Eastern Daylight Time (EDT)**, from May 25th to June 15th. 
+
+[Click here to join the workshop](https://umich.zoom.us/j/98760392804). We will use the same link for each meeting.
 
 ## May 25th (2-4pm EDT)
 ### Topic: Race and Racial Attitudes
