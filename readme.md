@@ -10,6 +10,8 @@ The workshops will run on **Tuesdays from 2-4pm Eastern Daylight Time (EDT)**, f
 
 [Register to attend here](https://umich.zoom.us/meeting/register/tJwqcemrpzkiGtCCd5xZecFUqoUrJNUTYorN). The link is the same for each meeting, and registration is only required one time to attend all meetings.
 
+Please email Amy Erica Smith (aesmith2@iastate.edu) for access to the papers.
+
 ## May 25th (2-4pm EDT)
 ### Topic: Race and Racial Attitudes
 1. Mariska Jung (Vrije Universiteit Brussel) - "Islamophobia and Antisemitism Articulated via Animal Politics"
