@@ -37,6 +37,5 @@ Please email Amy Erica Smith (aesmith2@iastate.edu) for access to the papers.
 ### Topic: Comparative Politics and International Relations
 1. Ben Peterson (Texas A&M University) - "When Do States Reform Religions? State-led Family Law Reform in Muslim-Majority Countries"
 2. Rana Osman (School of Oriental and African Studies (SOAS), University of London) - "The Meaning of Justice during Popular Uprisings in Africa and the Middle East: A Comparative Legal Analysis between Religious Institutions in Egypt"
-3. Irmak Yazici (University of Hawaii at Manoa) - "Secularism Gone Wrong? Tracing the Roots of Populism and Religious Nationalism in India, Turkey, and France"
 
 # [APSA Religion & Politics Section](https://connect.apsanet.org/s11/)
